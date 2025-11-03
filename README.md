@@ -1,2 +1,0 @@
-# oue.tw
-oue
